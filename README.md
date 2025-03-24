@@ -1,0 +1,1 @@
+# MauiAppMinhasComprasDocumentacao2
